@@ -1,0 +1,64 @@
+# Devin Kennedy – Falling for You (Official Music Video)
+
+> **歌詞登録ステータス：プレーン歌詞のみ**
+
+```
+Davinci couldn’t paint you
+in this light (I)
+I think you’re a masterpiece
+Classic like a melody
+And maybe
+it’s the way you
+look tonight (I)
+You’re perfect
+and I can’t believe
+You would give your time to me
+Never change the way you are
+You’re rarer than a
+shooting star
+A work of art;
+you’re one of kind
+I’m fall
+Falling for you
+Seasons they change
+But I never do
+We’ll dance in the rain
+And summertime too
+Every little thing you do’s
+Got me falling for you
+(Falling for you)
+I feel like
+I could fly
+ten thousand feet (high)
+Future never seemed so sweet
+Darlin you’re just heavenly
+Never change the way you are
+(way you are)
+You’re rarer than
+a shooting star
+(shooting star)
+A work of art;
+you’re one of kind
+I’m fall
+Falling for you (for you)
+Seasons they change
+But I never do
+We’ll dance in the rain
+And summertime too
+Every little thing you do’s
+Got me falling (for you)
+Fall
+Falling for you (for you)
+Seasons they change
+But I never do (no, no, no)
+We’ll dance in the rain
+(dancing in the rain)
+And summertime too
+Every little thing you do
+Every little thing you do’s
+Got me falling for you
+Falling for you (falling)
+Falling for you
+Every little thing you do’s
+Got me falling
+```
